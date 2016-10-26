@@ -1,0 +1,2 @@
+# donghodoidayda
+http://mongtaynaildep.com/dong-ho-doi/dong-ho-doi-day-da-thong-linh-thoi-trang-dong-ho-doi/ đồng hồ đôi dây da không còn là món đồ thời trang quá mới mẻ với các bạn trẻ. Đồng hồ đôi đã trở thành một phần của thời trang của các cặp đôi đang yêu nhau, mà thời trang thì không ngừng chuyển động nên những chiếc đồng hồ cũng luôn phải làm mới mình, nhưng theo một cách âm thầm hơn. Năm 2016 đã dần trôi qua và bạn có tò mò xu hướng đồng hồ đôi nào đang thống trị thời trang đồ đôi của giới trẻ hiện nay? Đó chính là những cặp 
